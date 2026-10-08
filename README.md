@@ -1,0 +1,2 @@
+# let-me-try-and-convince-you-why-you-should-watch-ARCANE-if-you-HAVE-NOT-watched-it-already-
+THIS IS A BIT OF A ARCANE FANPAGE. I'm out here to convince the ones who haven't watched arcane already, why they totally SHOULD!! For the ones who haven't watched the show ARCANE yet, be aware there is a little bit of spoiler, FOR THE ONES WHO HAVE THO, BE READY TO CACKLE CUZ YK THE LORE AND I HAVE ADDED MEMES AND EDITS FOR Y'LL!!!!
